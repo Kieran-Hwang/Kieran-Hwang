@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+I am King of Gods. I always kill you anytime, anywhere. 
 <!--
 **Kieran-Hwang/Kieran-Hwang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
